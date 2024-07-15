@@ -14,4 +14,4 @@ Software Engineering: Agile Methodologies, Version Control (Git)
 
 Contact Me
 Email: Mr.harshkumar2808@gmail.com
-LinkedIn: Harsh Kumar
+LinkedIn: www.linkedin.com/in/harsh-kumar-bb8ba8317
